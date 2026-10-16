@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi✌️
 
 I'm Anu bharanika, an engineering student from India.
 
